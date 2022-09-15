@@ -36,8 +36,6 @@ github地址：[https://github.com/hzbnb/affair](https://github.com/hzbnb/affair
 
 ### 联系方式：
 
-<img src="https://s1.ax1x.com/2022/09/12/vXfTTU.jpg" style="width:50%" />
-
 
 
 
